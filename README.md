@@ -33,4 +33,24 @@ We had a lecture by Professor Mr. Inder Singh in the auditorium. He is in charge
 After that, we attended a lecture by a Priya Dardahni ma’am on Universal Human Values. It was a very memorable session. She also gave us an assignment, which we completed sincerely. Her lecture was extremely engaging and filled with positivity. She spoke about real happiness and other meaningful ideas, which left a lasting impact on us.
 
 ## Day 4
+----
+
+🗓️ Fourth Day of College – A Truly Memorable Experience
+
+The fourth day of my college life was very, very interesting and deeply memorable. The day was filled with diverse and enriching sessions that made it feel both educational and exciting.
+
+We began with a history class and then attended a TCC seminar conducted by Professor Rajveer Ma’am. It was insightful and engaging, setting a thoughtful tone for the rest of the day.
+
+After that, we had our P2P class, which also took place in the TCC seminar hall. Both sessions provided a strong academic start to the day.
+
+Following that, we had a one-hour break, giving us time to refresh and get ready for what was next.
+
+Post-break, we attended a lecture by Priyadarshani Ma’am, an expert in Universal Human Values, in the auditorium. Her words were powerful and inspiring, encouraging us to reflect on the deeper aspects of life and happiness.
+
+The day concluded with a Cosmic Club session—organized by the Indravasi Union and the Cosmic Club of our college. This event was exciting and interactive, filled with creativity and a lot of positive energy.
+
+✨ Overall, it was a wonderful day—a perfect blend of learning, inspiration, and fun. Mam gave a assignment and it was very interesting assignment.
+
+
+## Day 5
 -
