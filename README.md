@@ -23,3 +23,6 @@ Here’s a clearer and more organized version of your paragraph:
 On the second day of college, we went to the professor's office to attend a lecture. First, we listened to the lecture by our professors. Then, a representative from Buddy for Study came on stage and spoke about the benefits of financial support for poor and needy students. They explained how scholarships and study materials help students continue their education without financial stress.
 
 After that, our professor Arshpreet Sir came on stage and spoke about the importance of food and nutrition. He mentioned that hostel students receive healthy meals and food supplements to ensure their well-being. This support helps students stay focused and perform better in their studies.
+
+## Day 3 
+- 
