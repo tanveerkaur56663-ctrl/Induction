@@ -25,4 +25,10 @@ On the second day of college, we went to the professor's office to attend a lect
 After that, our professor Arshpreet Sir came on stage and spoke about the importance of food and nutrition. He mentioned that hostel students receive healthy meals and food supplements to ensure their well-being. This support helps students stay focused and perform better in their studies.
 
 ## Day 3 
-- 
+
+
+- The third day of college was very interesting.
+We had a lecture by Professor Mr. Inder Singh in the auditorium. He is in charge of the IAPT (Indian Association of Physics Teachers). His lecture was truly fascinating as he talked about various medical topics from around the world and also explained the real meaning of Ekamkar and many other deep concepts.
+
+After that, we attended a lecture by a Priya Dardahni ma’am on Universal Human Values. It was a very memorable session. She also gave us an assignment, which we completed sincerely. Her lecture was extremely engaging and filled with positivity. She spoke about real happiness and other meaningful ideas, which left a lasting impact on us.
+
