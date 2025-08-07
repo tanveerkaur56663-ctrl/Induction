@@ -59,9 +59,35 @@ The day began with our first lecture in English, conducted by Professor Asthik S
 
 Next, we attended our Mathematics lecture in the Mechanical Seminar Hall, delivered by Professor  It was an intellectually stimulating session. The professor kept us involved by frequently asking questions and encouraging students to answer. This interactive method made the class both challenging and fun.
 
-Our third and final lecture of the day was also conducted by Professor R this time for our B.E.E
+Our third and final lecture of the day was also conducted by Professor Ranvir Mam this time for our B.E.E
 E subject. Again, his teaching style kept us interested, and the content was both practical and insightful.
 
 After a fulfilling day of learning, we wrapped up and departed, feeling more informed and inspired.
 
 ✨ Each lecture brought something new, and it’s days like these that make college life truly meaningful and exciting.
+
+## Day 6 
+----
+
+🗓️ Sixth Day of College – A Day Full of Learning and Inspiration
+
+The 6th day of college was an enriching experience, packed with insightful lectures and memorable moments.
+
+We began with the first class of B. Tripathi, taught by Professor Ranveer Kaur (Ranvir Ma’am). Her teaching style was clear and engaging, helping us understand the subject thoroughly.
+
+The second lecture was ZP2P, conducted by our seniors. This session stood out as it was interactive and informative. We learned many practical and useful things from their experience, making it one of the most interesting sessions of the day.
+
+After that, we had a one-hour break, giving us time to relax and reflect on the sessions so far.
+
+Post-break, we attended a lecture by Dr. Arvind Dhingra, the Director of Statistics and Interiors, TLC. His talk was inspiring and offered a new perspective on the role of data and structure in modern education.
+
+Next came an expert lecture by Mr. Jasveer Singh Sekho, Director and Resource Person at STEVE. His session was full of valuable insights and real-world applications, which added great depth to our learning experience.
+
+Finally, the day concluded with a lecture by Dr. Lakveer Singh Khanna, which wrapped up our day with thoughtful learning and meaningful discussions.
+
+✨ Overall, the 6th day was packed with knowledge, motivation, and exposure to experts, making it another memorable day in our college jourey.
+
+## Day 7
+
+ -
+
