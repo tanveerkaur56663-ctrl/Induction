@@ -89,5 +89,23 @@ Finally, the day concluded with a lecture by Dr. Lakveer Singh Khanna, which wra
 
 ## Day 7
 
- -
+ ----
+
+🗓️ Seventh Day of College – A Day of Learning, Guidance, and Growth
+
+Today marked the 7th day of our college journey, and it was filled with insightful lectures and valuable experiences.
+
+We began our day in the V-Register Auditorium, where our first lecture was delivered by Amit Kamrath Sir, the In-charge of DMC (Dialogue & Media Cell). His session focused on the editing sector, giving us a clear understanding of its importance and role in communication. It was both engaging and informative.
+
+The second lecture was by Dr. Parminder Singh, the Dean of Student Affairs. His talk was deeply inspiring, offering us meaningful insights about student life, opportunities, and overall development.
+
+This was followed by a session with Dr. Shinde Singh, where he explained the entire process of conducting examinations. His lecture gave us a thorough understanding of the rules, structure, and importance of academic honesty.
+
+After a short one-hour break, we returned to our respective rooms as per the scheduled classes.
+
+The next lecture was Chemistry, conducted by Rajveer Ma’am. She explained the concepts clearly, and the class was very educational.
+
+Finally, we had a spiritual-cum-programming session led by our seniors. It was a unique experience — blending mental calmness with technical learning. The programming part was taught in a very interesting and enjoyable way, making it one of the highlights of the day.
+
+✨ In all, today was a perfect mix of technical, academic, and personal development, and it left a lasting impact on us....
 
