@@ -32,3 +32,5 @@ We had a lecture by Professor Mr. Inder Singh in the auditorium. He is in charge
 
 After that, we attended a lecture by a Priya Dardahni ma’am on Universal Human Values. It was a very memorable session. She also gave us an assignment, which we completed sincerely. Her lecture was extremely engaging and filled with positivity. She spoke about real happiness and other meaningful ideas, which left a lasting impact on us.
 
+## Day 4
+-
