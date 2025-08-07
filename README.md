@@ -53,4 +53,15 @@ The day concluded with a Cosmic Club session—organized by the Indravasi Union 
 
 
 ## Day 5
--
+----Fifth daywas yet another very interesting and memorable day in my college journey.
+
+The day began with our first lecture in English, conducted by Professor Asthik Sir . His way of introducing the subject was truly wonderful and engaging, setting a positive and energetic mood for the rest of the day.
+
+Next, we attended our Mathematics lecture in the Mechanical Seminar Hall, delivered by Professor  It was an intellectually stimulating session. The professor kept us involved by frequently asking questions and encouraging students to answer. This interactive method made the class both challenging and fun.
+
+Our third and final lecture of the day was also conducted by Professor R this time for our B.E.E
+E subject. Again, his teaching style kept us interested, and the content was both practical and insightful.
+
+After a fulfilling day of learning, we wrapped up and departed, feeling more informed and inspired.
+
+✨ Each lecture brought something new, and it’s days like these that make college life truly meaningful and exciting.
